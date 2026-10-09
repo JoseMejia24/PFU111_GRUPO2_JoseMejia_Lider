@@ -1,1 +1,4 @@
 -Jose Daniel Mejia Loayza
+-Miguel Pachaguaya
+-Alejandro Antonio Quispe Urizacari
+-Moira Andrea Yampa Guerra
